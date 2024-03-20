@@ -1,1 +1,1 @@
-Ini praktek kelas FSW 4 pertemuan 2 chapter 2
+Ini praktek kelas FSW 4 pertemuan 2 chapter 2.
