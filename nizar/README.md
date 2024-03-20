@@ -1,0 +1,1 @@
+Insight full sekali, teman"nya juga asik
